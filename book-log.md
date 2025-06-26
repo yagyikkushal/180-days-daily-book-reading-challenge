@@ -15,4 +15,9 @@
 ## ✅ Day 4 – June 25, 2025
 - 📘 Book: Start With Why ? (Simon Sinek)
 - 📄 Pages Read: 8 (Page 207 to 214)
-- Note: Pages are missing in book after 214 and last page is 231.
+- 📝 Note: Pages are missing in book after 214 and last page is 231.
+
+## ✅ Day 5 – June 26, 2025
+- 📘 Book: Start With Why ? (Simon Sinek)
+- 📄 Pages Read: 8 (Page 215 to 231)
+- 📝 Note: Read the missing pages online. Book Finished.
