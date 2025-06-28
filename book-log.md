@@ -22,7 +22,11 @@
 - 📄 Pages Read: 8 (Page 215 to 231)
 - 📝 Note: Read the missing pages online. Book Finished.
 
-- ## ✅ Day 6 – June 27, 2025
+## ✅ Day 6 – June 27, 2025
 - 📘 Book: Ultralearning (Scott H. Young)
 - 📄 Pages Read: 21 (Page 11 to 31)
 - 📝 Note: Started new book.
+
+## ✅ Day 7 – June 28, 2025
+- 📘 Book: Ultralearning (Scott H. Young)
+- 📄 Pages Read: 6 (Page 32 to 37)
