@@ -34,3 +34,7 @@
 ## ✅ Day 8 – June 29, 2025
 - 📘 Book: Ultralearning (Scott H. Young)
 - 📄 Pages Read: 20 (Page 38 to 57)
+
+## ✅ Day 9 – June 30, 2025
+- 📘 Book: Ultralearning (Scott H. Young)
+- 📄 Pages Read: 13 (Page 58 to 70)
