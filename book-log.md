@@ -50,3 +50,7 @@
 ## ✅ Day 12 – July 03, 2025
 - 📘 Book: Ultralearning (Scott H. Young)
 - 📄 Pages Read: 10 (Page 88 to 97)
+
+## ✅ Day 13 – July 04, 2025
+- 📘 Book: Ultralearning (Scott H. Young)
+- 📄 Pages Read: 8 (Page 98 to 105)
