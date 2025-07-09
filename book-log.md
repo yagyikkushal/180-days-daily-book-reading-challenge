@@ -70,3 +70,7 @@
 ## ✅ Day 17 – July 08, 2025
 - 📘 Book: Ultralearning (Scott H. Young)
 - 📄 Pages Read: 5 (Page 121 to 125)
+
+## ✅ Day 18 – July 09, 2025
+- 📘 Book: Ultralearning (Scott H. Young)
+- 📄 Pages Read: 5 (Page 126 to 130)
