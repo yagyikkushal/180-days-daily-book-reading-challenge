@@ -86,3 +86,7 @@
 ## ✅ Day 21 – July 12, 2025
 - 📘 Book: Ultralearning (Scott H. Young)
 - 📄 Pages Read: 5 (Page 141 to 145)
+
+## ✅ Day 22 – July 13, 2025
+- 📘 Book: Ultralearning (Scott H. Young)
+- 📄 Pages Read: 5 (Page 146 to 150)
