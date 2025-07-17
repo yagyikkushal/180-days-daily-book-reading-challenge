@@ -102,3 +102,7 @@
 ## ✅ Day 25 – July 16, 2025
 - 📘 Book: Ultralearning (Scott H. Young)
 - 📄 Pages Read: 5 (Page 161 to 165)
+
+## ✅ Day 26 – July 17, 2025
+- 📘 Book: Ultralearning (Scott H. Young)
+- 📄 Pages Read: 5 (Page 166 to 170)
