@@ -118,3 +118,11 @@
 ## ✅ Day 29– July 20, 2025
 - 📘 Book: Ultralearning (Scott H. Young)
 - 📄 Pages Read: 5 (Page 182 to 186)
+
+## ✅ Day 30– July 21, 2025
+- 📘 Book: Ultralearning (Scott H. Young)
+- 📄 Pages Read: 5 (Page 187 to 191)
+
+## ✅ Day 31– July 22, 2025
+- 📘 Book: Ultralearning (Scott H. Young)
+- 📄 Pages Read: 7 (Page 192 to 198)
