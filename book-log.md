@@ -139,3 +139,7 @@
 - 📘 Book: Ultralearning (Scott H. Young)
 - 📄 Pages Read: 5 (Page 209 to 213)
 - Note: Book Completed
+
+## ✅ Day 35– July 26, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 5 (Page 3 to 7)
