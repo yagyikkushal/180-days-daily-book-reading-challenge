@@ -143,3 +143,7 @@
 ## ✅ Day 35– July 26, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 5 (Page 3 to 7)
+
+## ✅ Day 36– July 27, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 5 (Page 8 to 12)
