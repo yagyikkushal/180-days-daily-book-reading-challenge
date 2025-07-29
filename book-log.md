@@ -151,3 +151,7 @@
 ## ✅ Day 37– July 28, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 5 (Page 13 to 17)
+
+## ✅ Day 38– July 29, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 5 (Page 18 to 22)
