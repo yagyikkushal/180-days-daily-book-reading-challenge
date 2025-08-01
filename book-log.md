@@ -163,3 +163,7 @@
 ## ✅ Day 40– July 31, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 7 (Page 28 to 34)
+
+## ✅ Day 41– August 01, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 5 (Page 35 to 39)
