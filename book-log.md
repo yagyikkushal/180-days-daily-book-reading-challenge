@@ -179,3 +179,7 @@
 ## ✅ Day 44– August 04, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 5 (Page 50 to 54)
+
+## ✅ Day 45– August 05, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 5 (Page 55 to 59)
