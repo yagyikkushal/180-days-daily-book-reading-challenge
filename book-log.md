@@ -187,3 +187,7 @@
 ## ✅ Day 46– August 06, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 5 (Page 60 to 64)
+
+## ✅ Day 47– August 07, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 5 (Page 65 to 69)
