@@ -191,3 +191,7 @@
 ## ✅ Day 47– August 07, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 5 (Page 65 to 69)
+
+## ✅ Day 48– August 08, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 5 (Page 70 to 74)
