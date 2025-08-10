@@ -199,3 +199,7 @@
 ## ✅ Day 49– August 09, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 5 (Page 75 to 79)
+
+## ✅ Day 50– August 10, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 1 (Page 80)
