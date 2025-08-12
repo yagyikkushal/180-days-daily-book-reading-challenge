@@ -207,3 +207,7 @@
 ## ✅ Day 51– August 11, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 1 (Page 81)
+
+## ✅ Day 52– August 12, 2025
+- 📘 Book: Class 11th Political Science (NCERT)
+- 📄 Pages Read: 1 (Page 82)
