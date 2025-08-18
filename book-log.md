@@ -231,3 +231,7 @@
 ## ✅ Day 57– August 17, 2025
 - 📘 Book: Class 11th Political Science (NCERT)
 - 📄 Pages Read: 1 (Page 87)
+
+## ✅ Day 58– August 18, 2025
+- 📘 Book: Thinking Fast and Slow
+- 📄 Pages Read: 10 (Page 1 to 10)
