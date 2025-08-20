@@ -239,3 +239,7 @@
 ## ✅ Day 59– August 19, 2025
 - 📘 Book: Thinking Fast and Slow
 - 📄 Pages Read: 1 (Page 11)
+
+## ✅ Day 60– August 20, 2025
+- 📘 Book: Thinking Fast and Slow
+- 📄 Pages Read: 12 (Page 12 to 23)
