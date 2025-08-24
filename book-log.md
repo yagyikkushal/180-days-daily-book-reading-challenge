@@ -251,3 +251,7 @@
 ## ✅ Day 63– August 23, 2025
 - 📘 Book: Thinking Fast and Slow
 - 📄 Pages Read: 1 (Page 25)
+
+## ✅ Day 64– August 24, 2025
+- 📘 Book: Thinking Fast and Slow
+- 📄 Pages Read: 18 (Page 26 to 43)
