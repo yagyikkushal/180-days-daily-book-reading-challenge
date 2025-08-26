@@ -259,3 +259,7 @@
 ## ✅ Day 65– August 25, 2025
 - 📘 Book: Thinking Fast and Slow
 - 📄 Pages Read: 4 (Page 44 to 47)
+
+## ✅ Day 66– August 26, 2025
+- 📘 Book: Thinking Fast and Slow
+- 📄 Pages Read: 1 (Page 48)
