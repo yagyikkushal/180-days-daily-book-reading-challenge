@@ -271,3 +271,7 @@
 ## ✅ Day 68– August 28, 2025
 - 📘 Book: Thinking Fast and Slow
 - 📄 Pages Read: 1 (Page 50)
+
+## ✅ Day 69– August 29, 2025
+- 📘 Book: Thinking Fast and Slow
+- 📄 Pages Read: 1 (Page 51)
