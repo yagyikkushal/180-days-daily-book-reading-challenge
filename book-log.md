@@ -279,3 +279,7 @@
 ## ✅ Day 70– August 30, 2025
 - 📘 Book: Thinking Fast and Slow
 - 📄 Pages Read: 1 (Page 52)
+
+## ✅ Day 71– August 31, 2025
+- 📘 Book: Thinking Fast and Slow
+- 📄 Pages Read: 1 (Page 53)
