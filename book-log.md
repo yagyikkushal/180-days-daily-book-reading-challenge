@@ -287,3 +287,7 @@
 ## ✅ Day 72– September 01, 2025
 - 📘 Book: Thinking Fast and Slow
 - 📄 Pages Read: 1 (Page 54)
+
+## ✅ Day 73– September 02, 2025
+- 📘 Book: Thinking Fast and Slow
+- 📄 Pages Read: 1 (Page 55)
