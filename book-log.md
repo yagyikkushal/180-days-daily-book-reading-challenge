@@ -307,3 +307,7 @@
 ## ✅ Day 77– September 06, 2025
 - 📘 Book: Thinking Fast and Slow
 - 📄 Pages Read: 1 (Page 59)
+
+## ✅ Day 78– September 07, 2025
+- 📘 Book: Thinking Fast and Slow
+- 📄 Pages Read: 1 (Page 60)
